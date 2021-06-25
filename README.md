@@ -15,4 +15,4 @@ I am always curious :bulb: about things and enjoy learning and I like to solve p
 In my spare time, I play music 🎧, painting 🎨, reading 📚. I believe that the skills that I have attained from the dynamic environment and life define me and I am looking forward to implementing and polishing them in any opportunities that I receive.
 
 ## Find me around the web :earth_africa:: 
-- [Linkedin](www.linkedin.com/in/ncpatel)
+- [Linkedin](https://www.linkedin.com/in/ncpatel)
